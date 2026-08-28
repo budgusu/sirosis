@@ -1,2 +1,2 @@
 # sirosis
-Buku Selesai, Memoar Sirosis Mantan Aktivis
+Selesai, Memoar Sirosis Mantan Aktivis
